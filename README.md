@@ -1,5 +1,5 @@
 - Hi, I’m @leevi00
-- I’m interested in ...scripts
+- I’m interested in scripts
 - How to reach me @pokeongo09@gmail.com
 
 <!---
